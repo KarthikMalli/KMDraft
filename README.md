@@ -16,7 +16,7 @@ Interested in working with me? Drop me a line at sainyn@gmail.com and say hi :)
 
 ## Selected Narrative Non-Fiction
 
-- [Exploring Jotirao Phule's Place in Modern Marathi Literature & Print Culture](https://caravanmagazine.in/books/jotirao-phule-marathi-print-culture), Longform books essay for _The Caravan_, Oct 2022 edition.
+- [Exploring Jotirao Phule's Place in Modern Marathi Literature & Print Culture](https://caravanmagazine.in/books/jotirao-phule-marathi-print-culture), longform books essay for _The Caravan_, Oct 2022 edition.
 - [Victory City](https://fiftytwo.in/story/victory-city/), essay on heritage and identity in Bijapur, Karnataka. Published in fiftytwo.in, Jan 2023.
 - [The Classical Dakhni Tradition in Bijapur](https://caravanmagazine.in/history/the-rise-and-fall-of-dakhni-literature), _The Caravan_, Jan 2020 edition.
 - [Karnataka's Persian and Urdu inscriptions](https://www.deccanherald.com/spectrum/spectrum-top-stories/paper-vault-for-states-inscriptions-780958.html), Deccan Herald, 2019.
