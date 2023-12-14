@@ -39,7 +39,7 @@ Interested in working with me? Drop me a line at sainyn@gmail.com and say hi :)
 
 ## Books
 
-- I'm currently working on a book exploring the history of the Dakhni language and its classical literature, for Westland Books.
+- I'm currently working on a book exploring the history of the Dakhni language and its classical literature, for Westland Books. Due in 2024.
 
 ## Book Reviews
 
